@@ -1,0 +1,3 @@
+I have taken the pizza bread so you don't need to make dough at home :)
+first cut all the vegatbles you need in that like:- Tomato,Corn,Paneer,Beans, Onions etc.
+Then take the Pizza bread and place all the cutted vegetables onto it.  Make sure they are spreated uniformly and then take the cheese and put in it. And then keep the Pizza Bread in the oven(if you don't have oven then keep it in pan and makesure the pan is closed)if you want you can add more cheese. And after sometime remove it from over or pan and Add the tomato sauce(you can add chilly sauce as wellAnd cut it in Slices. HURRAY!!!!!!!!!!!! Your Pizza is ready -Prince Yadav

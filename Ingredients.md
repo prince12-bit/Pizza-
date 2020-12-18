@@ -1,0 +1,1 @@
+ Ingredients List. Bleached wheat flour, corn meal (used in preparation), sugar, soy oil, salt, yeast, corn syrup solids, sodium caseinate (a milk derivative), mono and diglycerides, potassium bromate and enzymes.
